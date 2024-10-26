@@ -1,1 +1,1 @@
-# mixer-store
+# mixer boutique
